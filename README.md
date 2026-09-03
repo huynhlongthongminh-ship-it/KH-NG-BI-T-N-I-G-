@@ -1,4 +1,4 @@
-long ăn cứt 
+tÀI CHÓ
 
 thuc
 
