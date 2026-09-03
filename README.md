@@ -1,4 +1,3 @@
-tÀI CHÓ
 
 thuc
 
